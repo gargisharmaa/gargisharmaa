@@ -3,7 +3,7 @@
 
 - 📫 Reach me out at **sharmagargi200@gmail.com**
 
-- 📄 Know about my experiences [https://resume-builder-test-new.masaischool.com/resume/public?resumeId=66dad43bf930ea373f530a06](https://resume-builder-test-new.masaischool.com/resume/public?resumeId=66dad43bf930ea373f530a06)
+- 📄 Know about my experiences https://drive.google.com/file/d/1Dk1RXY9Lg7ZSv8bSX7UOSjJj1wanY3sa/view?usp=sharing
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
